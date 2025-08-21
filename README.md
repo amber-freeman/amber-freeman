@@ -37,7 +37,7 @@ iwcㅤcptsdㅤmdd,ㅤiㅤblockㅤoftenㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤintpㅤ5w4ㅤsp/sxㅤmel-cholㅤ[R]lu/A/i
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤintpㅤ5w4ㅤsp/sxㅤmel-cholㅤ[R]l/U/aI
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤusuallyㅤveryㅤquiet,ㅤalwaysㅤwithㅤtaraㅤ<3
 
