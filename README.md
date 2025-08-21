@@ -61,7 +61,7 @@ dni;
 
 basicㅤdniㅤcrit,ㅤ-13ㅤ25+,ㅤproㅤisrael,
 
-proshippers, darkshippers,ㅤlolicons,ㅤshotacons.
+proshippers,ㅤdarkshippers,ㅤlolicons,ㅤshotacons.
 
 ㅤ
 
