@@ -70,7 +70,7 @@ proshippers,ㅤdarkshippers,ㅤlolicons,ㅤshotacons.
 ㅤ
 <div align="center">
 
-[rentry](https://rentry.co/eliette)ㅤㅤㅤ[prns](https://pronouns.cc/@eliette)ㅤㅤㅤ[ata](https://tamber.atabook.org/)
+[rentry](https://rentry.co/eliette)ㅤㅤㅤ[twt](https://x.com/jennas_eli)ㅤㅤㅤ[ata](https://tamber.atabook.org/)
 
 </div>
 
