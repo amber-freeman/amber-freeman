@@ -29,12 +29,6 @@ Here are some ideas to get you started:
 <div align="center">
 
 𝑒lietteㅤㅤ ֜ㅤㅤ𝒶mberㅤㅤ,,ㅤㅤaroaceㅤㅤlesbian
-
-ㅤ
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mhs4g673q5qutmpya64yugbuy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
 <!-- . -->
 
 ㅤ
@@ -52,11 +46,12 @@ iwcㅤcptsdㅤmdd,ㅤiㅤblockㅤoftenㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤ
 
 
-c+hㅤ=ㅤyesㅤifㅤfriendsㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤ
 
-rarelyㅤacceptㅤfriendㅤreqsㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mhs4g673q5qutmpya64yugbuy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ㅤ
+
 
 ---
 
