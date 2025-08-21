@@ -15,6 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+![.](https://files.catbox.moe/fijh65.png)
+
+ㅤ
 
 <p align="center">
 "ㅤㅤ𝐭𝐢𝐦𝐞 𝐟𝐨𝐫 𝐭𝐡𝐞 𝐛𝐢𝐠 𝐟𝐢𝐧𝐚𝐥𝐞 !ㅤㅤ"
@@ -71,3 +74,6 @@ proshippers, darkshippers,ㅤlolicons,ㅤshotacons.
 
 </div>
 
+ㅤ
+
+![.](https://files.catbox.moe/nc7smv.png)
