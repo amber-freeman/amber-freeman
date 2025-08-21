@@ -15,9 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-
-
-ㅤ
+<!-- . -->
 
 <p align="center">
 "ㅤㅤ𝐭𝐢𝐦𝐞 𝐟𝐨𝐫 𝐭𝐡𝐞 𝐛𝐢𝐠 𝐟𝐢𝐧𝐚𝐥𝐞 !ㅤㅤ"
@@ -36,6 +34,8 @@ Here are some ideas to get you started:
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mhs4g673q5qutmpya64yugbuy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+<!-- . -->
 
 ㅤ
 
@@ -78,6 +78,3 @@ proshippers,ㅤdarkshippers,ㅤlolicons,ㅤshotacons.
 [rentry](https://rentry.co/eliette)ㅤㅤㅤ[twt](https://x.com/jennas_eli)ㅤㅤㅤ[ata](https://tamber.atabook.org/)
 
 </div>
-
-ㅤ
-
