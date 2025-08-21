@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![.](https://files.catbox.moe/fijh65.png)
+
 
 ㅤ
 
@@ -76,4 +76,3 @@ proshippers, darkshippers,ㅤlolicons,ㅤshotacons.
 
 ㅤ
 
-![.](https://files.catbox.moe/nc7smv.png)
