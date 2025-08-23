@@ -57,6 +57,22 @@ iwcㅤcptsdㅤmdd,ㅤiㅤblockㅤoftenㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤ
 
+sometimesㅤplayingㅤrhythmㅤgames
+
+(tryingㅤtoㅤgetㅤbackㅤtoㅤmyㅤprime)
+
+ㅤ
+
+[osu](https://osu.ppy.sh/users/31439249/mania)ㅤㅤ,ㅤㅤ[quaver](https://quavergame.com/user/711709)
+
+ㅤ
+
+
+---
+
+ㅤ
+
+
 dni;
 
 basicㅤdniㅤcrit,ㅤ-13ㅤ25+,ㅤproㅤisrael,
