@@ -21,11 +21,15 @@ Here are some ideas to get you started:
 "ㅤㅤ𝐭𝐢𝐦𝐞 𝐟𝐨𝐫 𝐭𝐡𝐞 𝐛𝐢𝐠 𝐟𝐢𝐧𝐚𝐥𝐞 !ㅤㅤ"
 </p>
 ㅤ
-<p align="center"> 
+<div align="center"> 
 <img src="https://files.catbox.moe/we3thz.png" width=320> 
-</p>
+
+![](https://komarev.com/ghpvc/?username=amber-freeman&color=grey)
+
 ㅤ
-ㅤ
+
+</div>
+
 <div align="center">
 
 𝑒lietteㅤㅤ ֜ㅤㅤ𝒶mberㅤㅤ,,ㅤㅤaroaceㅤㅤlesbian
@@ -88,8 +92,5 @@ proshippers,ㅤdarkshippers,ㅤlolicons,ㅤshotacons.
 
 [rentry](https://rentry.co/eliette)ㅤㅤㅤ[twt](https://x.com/jennas_eli)ㅤㅤㅤ[ata](https://tamber.atabook.org/)
 
-ㅤ
-
-![.](https://hit.yhype.me/github/profile?account_id=196793417)
 
 </div>
