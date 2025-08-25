@@ -88,4 +88,8 @@ proshippers,ㅤdarkshippers,ㅤlolicons,ㅤshotacons.
 
 [rentry](https://rentry.co/eliette)ㅤㅤㅤ[twt](https://x.com/jennas_eli)ㅤㅤㅤ[ata](https://tamber.atabook.org/)
 
+ㅤ
+
+![.](https://hit.yhype.me/github/profile?account_id=196793417)
+
 </div>
