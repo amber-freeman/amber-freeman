@@ -24,6 +24,8 @@ Here are some ideas to get you started:
 <div align="center"> 
 <img src="https://files.catbox.moe/we3thz.png" width=320> 
 
+ㅤ
+
 ![](https://komarev.com/ghpvc/?username=amber-freeman&color=grey)
 
 ㅤ
